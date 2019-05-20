@@ -1,2 +1,0 @@
-# aimguild.github.io
-
